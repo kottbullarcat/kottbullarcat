@@ -1,4 +1,4 @@
-![alt text](https://64.media.tumblr.com/91faf845489634ba98d1f84f40e2ceaf/1b2ae716a002aee3-72/s640x960/3bf665e75ef172cd928a861e1be4a3dce7e26337.gifv)
+![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31b2yffynub6sxiq65xwurwdgcuq&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&bar_color=ffffff)
 ![alt text](https://64.media.tumblr.com/ff0fc2bcd3baed5002039ea5aee5fa28/8660a52874a39645-0e/s2048x3072/f74811c040e963a15211d64e6d716d29078a43c2.pnj)
 ![alt text](https://64.media.tumblr.com/483c4da8360c6c81f2a69c52bcc07fa6/38c26770616bd1df-20/s400x600/923e1258d612fae01086d08bf632520fe4dfc67e.pnj)
 ![alt text](https://external-media.spacehey.net/media/sRjd7CjDQav25h0W7D0RvaKVsn4RoKrytLLf8BTbOSz8=/https://i.ibb.co/cNtKBKk/Gun-Shot-Divider.gif)
