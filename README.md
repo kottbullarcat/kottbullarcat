@@ -26,3 +26,5 @@
 ![alt text](https://64.media.tumblr.com/5915dd4975941a641f367010b346958e/098ada3431d62f47-ce/s100x200/dec328dfc01ea73484f8b2f3b0f1fa9edbc7b658.gifv)
 ![alt text](https://64.media.tumblr.com/7320bdaf86a7cb2b9db4669abb6226a7/0a5eebe6c662da28-6d/s75x75_c1/7b3511c1ead5f5953c1881a331ba19ea37c96977.gifv)
 ![alt text](https://komarev.com/ghpvc/?username=kottbullarcat)
+ᴀɢʜ ʏᴏᴜ ꜱᴛᴀʟᴋᴇʀꜱ !!
+![alt text](https://64.media.tumblr.com/a0348c731791fdca5ac1ab5597d56eb0/07d3e658f8efc25f-50/s75x75_c1/d39793c79cc59cd6eafcf18a3eae764f214cadd7.gifv)
