@@ -6,7 +6,8 @@
 ᵐᵉⁿᵗᵃˡ ᵐᵃⁿⁱᶠᵉˢᵗᵒ ᵒᶠ ᵃᵇⁿᵒʳᵐᵃˡⁱᵗʸ 
 ![alt text](https://64.media.tumblr.com/98b6e399eea55c2091022fc466d8e6f0/b8c6f4af8e46c447-d3/s75x75_c1/f534ccb9b2348f5986e44f8356af9dff63cec4d8.gifv)
 ![alt text](https://64.media.tumblr.com/d443c6e92680f433e1e2722dd7ee8993/712e794bff568974-bf/s500x750/4706672be4b5b24f4133d083fefb3a658b34f2c6.webp)
-ʙɪɢ ʙɪɢ ᴡᴀʀɴɪɴɢ ʙᴇꜰᴏʀᴇ ᴛᴀʟᴋɪɴɢ ᴛᴏ ᴍᴇ,, ɪᴍ ᴀ ᴠᴇʀʏ ᴛᴀᴄᴛɪᴄᴀʟ & ꜱᴛʀᴀɪɢʜᴛ ꜰᴏʀᴡᴀʀᴅ ᴘᴇʀꜱᴏɴ ꜱᴏ ᴅᴏɴᴛ ɢᴇᴛ ᴀʟʟ ᴘɪꜱꜱʏ ɪꜰ ɪ ꜱᴀʏ ꜱᴏᴍᴇᴛʜɪɴɢ ᴛʜᴀᴛ ʜᴜʀᴛꜱ ʏᴏᴜʀ ꜰᴇᴇʟɪɴɢꜱ,, ɪ ᴀʟꜱᴏ ʜᴀᴠᴇ ᴍᴀᴊᴏʀ ʙᴘᴅ + ʜʏᴘᴇʀꜱᴇxᴜᴀʟɪᴛʏ ꜱᴏ Qᴜɪᴄᴋ ʜᴇᴀᴅꜱ ᴜᴘ ʀᴏꜰʟ.
+ʙɪɢ ʙɪɢ ᴡᴀʀɴɪɴɢ ʙᴇꜰᴏʀᴇ ᴛᴀʟᴋɪɴɢ ᴛᴏ ᴍᴇ,, ɪᴍ ᴀ ᴠᴇʀʏ ᴛᴀᴄᴛɪᴄᴀʟ & ꜱᴛʀᴀɪɢʜᴛ ꜰᴏʀᴡᴀʀᴅ ᴘᴇʀꜱᴏɴ ꜱᴏ ᴅᴏɴᴛ ɢᴇᴛ ᴀʟʟ ᴘɪꜱꜱʏ ɪꜰ ɪ ꜱᴀʏ ꜱᴏᴍᴇᴛʜɪɴɢ ᴛʜᴀᴛ ʜᴜʀᴛꜱ ʏᴏᴜʀ ꜰᴇᴇʟɪɴɢꜱ,, ɪ ᴀʟꜱᴏ ʜᴀᴠᴇ ᴍᴀᴊᴏʀ ʙᴘᴅ + ʜʏᴘᴇʀꜱᴇxᴜᴀʟɪᴛʏ ꜱᴏ Qᴜɪᴄᴋ ʜᴇᴀᴅꜱ ᴜᴘ ʀᴏꜰʟ. ɪ ɴᴏʀᴍᴀʟʟʏ ᴅᴏɴ’ᴛ ᴛᴀʟᴋ ᴛᴏ ʀᴀɴᴅᴏᴍꜱ, ᴇᴠᴇʀ; ꜱᴏ ɪ’ᴍ ɴᴏʀᴍᴀʟʟʏ ᴡɪᴛʜ ꜰʀɪᴇɴᴅꜱ,,
+![alt text](https://64.media.tumblr.com/7517ebb00cbfefc2f17fff5ed87d6e53/07d3e658f8efc25f-44/s75x75_c1/e957f71e57496bc5a6455f8c3cd284d27c80b1ec.gifv)
 ![alt text](https://64.media.tumblr.com/771311e11e73aaa189b2042596ec560f/3f3a29b6028bac85-85/s400x600/b6d0920e8c7ec85685570b783cf399ddc95035af.pnj)
 ![alt text](https://64.media.tumblr.com/eb1279c6d8141edca796d4c1e15badf9/4ffca3aa48f34f3a-86/s100x200/573434a37edb8546d35dc543e6e1be28ad548ad7.pnj)
 ![alt text](https://64.media.tumblr.com/430c878dd802d7cc29b8e2976f623621/4ffca3aa48f34f3a-a3/s100x200/fc29730b689d112dda1d2b7fec17ac25e1f08443.pnj)
