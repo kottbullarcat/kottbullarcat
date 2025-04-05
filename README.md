@@ -6,13 +6,13 @@
 ᵐᵉⁿᵗᵃˡ ᵐᵃⁿⁱᶠᵉˢᵗᵒ ᵒᶠ ᵃᵇⁿᵒʳᵐᵃˡⁱᵗʸ 
 ![alt text](https://64.media.tumblr.com/98b6e399eea55c2091022fc466d8e6f0/b8c6f4af8e46c447-d3/s75x75_c1/f534ccb9b2348f5986e44f8356af9dff63cec4d8.gifv)
 ![alt text](https://64.media.tumblr.com/d443c6e92680f433e1e2722dd7ee8993/712e794bff568974-bf/s500x750/4706672be4b5b24f4133d083fefb3a658b34f2c6.webp)
-ʙɪɢ ʙɪɢ ᴡᴀʀɴɪɴɢ ʙᴇꜰᴏʀᴇ ᴛᴀʟᴋɪɴɢ ᴛᴏ ᴍᴇ,, ɪᴍ ᴀ ᴠᴇʀʏ ᴛᴀᴄᴛɪᴄᴀʟ & ꜱᴛʀᴀɪɢʜᴛ ꜰᴏʀᴡᴀʀᴅ ᴘᴇʀꜱᴏɴ ꜱᴏ ᴅᴏɴᴛ ɢᴇᴛ ᴀʟʟ ᴘɪꜱꜱʏ ɪꜰ ɪ ꜱᴀʏ ꜱᴏᴍᴇᴛʜɪɴɢ ᴛʜᴀᴛ ʜᴜʀᴛꜱ ʏᴏᴜʀ ꜰᴇᴇʟɪɴɢꜱ,, ɪ ᴀʟꜱᴏ ʜᴀᴠᴇ ᴍᴀᴊᴏʀ ʙᴘᴅ + ʜʏᴘᴇʀꜱᴇxᴜᴀʟɪᴛʏ ꜱᴏ Qᴜɪᴄᴋ ʜᴇᴀᴅꜱ ᴜᴘ ʀᴏꜰʟ. ɪ ɴᴏʀᴍᴀʟʟʏ ᴅᴏɴ’ᴛ ᴛᴀʟᴋ ᴛᴏ ʀᴀɴᴅᴏᴍꜱ, ᴇᴠᴇʀ; ꜱᴏ ɪ’ᴍ ɴᴏʀᴍᴀʟʟʏ ᴡɪᴛʜ ꜰʀɪᴇɴᴅꜱ,,
+ʙɪɢ ʙɪɢ ᴡᴀʀɴɪɴɢ ʙᴇꜰᴏʀᴇ ᴛᴀʟᴋɪɴɢ ᴛᴏ ᴍᴇ,, ɪᴍ ᴀ ᴠᴇʀʏ ᴛᴀᴄᴛɪᴄᴀʟ & ꜱᴛʀᴀɪɢʜᴛ ꜰᴏʀᴡᴀʀᴅ ᴘᴇʀꜱᴏɴ ꜱᴏ ᴅᴏɴᴛ ɢᴇᴛ ᴀʟʟ ᴘɪꜱꜱʏ ɪꜰ ɪ ꜱᴀʏ ꜱᴏᴍᴇᴛʜɪɴɢ ᴛʜᴀᴛ ʜᴜʀᴛꜱ ʏᴏᴜʀ ꜰᴇᴇʟɪɴɢꜱ,, ɪ ᴀʟꜱᴏ ʜᴀᴠᴇ ᴍᴀᴊᴏʀ ʙᴘᴅ + ʜʏᴘᴇʀꜱᴇxᴜᴀʟɪᴛʏ ꜱᴏ Qᴜɪᴄᴋ ʜᴇᴀᴅꜱ ᴜᴘ ʀᴏꜰʟ. ɪ ɴᴏʀᴍᴀʟʟʏ ᴅᴏɴ’ᴛ ᴛᴀʟᴋ ᴛᴏ ʀᴀɴᴅᴏᴍꜱ, ᴇᴠᴇʀ; ꜱᴏ ɪ’ᴍ ɴᴏʀᴍᴀʟʟʏ ᴡɪᴛʜ ꜰʀɪᴇɴᴅꜱ,, ɪ ᴀᴍ ᴀ ᴛᴄᴄᴇʀ ʙᴜᴛ ɪ ᴅᴏ ɴᴏᴛ ᴄᴏɴᴅᴏɴᴇ ᴛʜᴇ ᴀᴄᴛɪᴏɴꜱ ᴏꜰ ᴛʜᴇ ᴍᴜʀᴅᴇʀᴇʀꜱ, ɪ ᴍᴏʀᴇ ᴀᴍ ɪɴ ɪᴛ ᴄᴀᴜꜱᴇ ɪ ʟɪᴋᴇ ᴛᴏ ʟᴇᴀʀɴ ᴀʙᴏᴜᴛ ᴛʜᴇ ᴘꜱʏᴄʜᴏʟᴏɢʏ ᴏꜰ ᴛʜᴇᴍ,,
 ![alt text](https://64.media.tumblr.com/7517ebb00cbfefc2f17fff5ed87d6e53/07d3e658f8efc25f-44/s75x75_c1/e957f71e57496bc5a6455f8c3cd284d27c80b1ec.gifv)
 ![alt text](https://64.media.tumblr.com/771311e11e73aaa189b2042596ec560f/3f3a29b6028bac85-85/s400x600/b6d0920e8c7ec85685570b783cf399ddc95035af.pnj)
 ![alt text](https://64.media.tumblr.com/eb1279c6d8141edca796d4c1e15badf9/4ffca3aa48f34f3a-86/s100x200/573434a37edb8546d35dc543e6e1be28ad548ad7.pnj)
 ![alt text](https://64.media.tumblr.com/430c878dd802d7cc29b8e2976f623621/4ffca3aa48f34f3a-a3/s100x200/fc29730b689d112dda1d2b7fec17ac25e1f08443.pnj)
 ![alt text](https://64.media.tumblr.com/3d789f03a2c7b087ca494e92b0a9b5eb/f943d9890bee0f57-4e/s100x200/3b5f820afe5f4f1a1e68ac3e417b25bf31341669.gifv)
-![alt text](https://64.media.tumblr.com/e2e7bfcffdb9905444aa8a734879dba3/4ffca3aa48f34f3a-91/s100x200/113a52651f68c9797c54da5f82c24e989c74d083.pnj)
+![alt text](https://64.media.tumblr.com/20165e462f619810ca7036c5f39ffaa7/d2495b04fb46fe49-00/s100x200/5672f0bff6e091ed8103d7e766b91eabfeef0c76.pnj)
 ![alt text](https://64.media.tumblr.com/8f2e64476352c575947ac21a7ed31a85/a86a17c9a4f8ac26-fa/s100x200/a7446fd805af3650665bd5ebc5b5de76d27ff591.gifv)
 ![alt text](https://64.media.tumblr.com/4a058c2888320084384f515cd1524e3e/1b8381f969116a1e-5d/s100x200/2481e1ae030df8a4c6112ca71fb6297d53da5b45.pnj)
 ![alt text](https://64.media.tumblr.com/0077b7c4db45cfdac91a21b04b87714d/5805c69156129592-60/s250x400/936133fcb85f57b7f01c59e433c93ebfdd3c7064.gifv)
