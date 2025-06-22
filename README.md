@@ -27,7 +27,7 @@
 <b><sup><sub>𝗁𝗂, 𝗂𝗆 𝗆𝖺𝖽𝗓 𝗈𝗋 𝗄𝗇𝖾𝖾, 𝗂 𝗐𝗈𝗇𝗍 𝗋𝖾𝖺𝗅𝗅𝗒 𝗍𝖺𝗅𝗄 𝗍𝗈 𝗌𝗍𝗋𝖺𝗇𝗀𝖾𝗋𝗌 𝖻𝗎𝗍 𝗇𝗈𝗋𝗆𝖺𝗅𝗅𝗒 𝗂𝗍𝗌 𝖶2𝗂 𝖿𝗈𝗋 𝗆𝖾. 𝖨 𝗁𝖺𝗏𝖾 𝖡𝖯𝖣 & 𝖨𝖢𝖣 𝗌𝗈 𝗂𝗇𝗍𝖾𝗋𝖺𝖼𝗍 𝖼𝖺𝗋𝖾𝖿𝗎𝗅𝗅𝗒, 𝖻𝗎𝗍 𝗈𝗏𝖾𝗋𝖺𝗅𝗅 𝖨’𝗆 𝖿𝗋𝗂𝖾𝗇𝖽𝗅𝗒 𝖾𝗇𝗈𝗎𝗀𝗁 𝗅𝗈𝗅. 𝖨’𝗆 𝗂𝗇𝗍𝗈 𝗏𝖾𝗋𝗒 𝗐𝖾𝗂𝗋𝖽 𝗍𝗁𝗂𝗇𝗀𝗌 𝗌𝗈 𝗂𝖿 𝗒𝗈𝗎 𝖽𝗈𝗇’𝗍 𝗅𝗂𝗄𝖾 𝗂𝗍 𝗂 𝗐𝗈𝗎𝗅𝖽 𝗌𝗍𝗋𝗈𝗇𝗀𝗅𝗒 𝗋𝖾𝖼𝗈𝗆𝗆𝖾𝗇𝖽 𝗒𝗈𝗎 𝖻𝗅𝗈𝖼𝗄 𝗆𝖾 𝖻𝖾𝖿𝗈𝗋𝖾 𝖼𝖺𝗎𝗌𝗂𝗇𝗀 𝗌𝗈𝗆𝖾 𝗌𝗍𝗎𝗉𝗂𝖽 𝗋𝖾𝗍𝖺𝗋𝖽𝖾𝖽 𝖽𝗋𝖺𝗆𝖺, 𝗍𝗁𝖺𝗇𝗄𝗌. 𝖺𝗅𝗌𝗈, 𝗂 𝖺𝗆 15 𝗌𝗈 𝗉𝗅𝖾𝖺𝗌𝖾 𝗂𝖿 𝗒𝗈𝗎 𝖺𝗋𝖾 18 𝗈𝗋 𝗈𝗅𝖽𝖾𝗋; 𝗋𝖾𝖿𝗋𝖺𝗂𝗇 𝖿𝗋𝗈𝗆 𝗍𝖺𝗅𝗄𝗂𝗇𝗀 𝗍𝗈 𝗆𝖾.</sub></sup></b>
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31b2yffynub6sxiq65xwurwdgcuq&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=6c0200&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
-![alt text](https://64.media.tumblr.com/99e5ce2e44df09cee70acefc80f8e54d/0f3a580eb152b514-68/s500x750/bb267e8ff4666efd6e0ff11929395095d7073183.webp)
+![alt text](https://64.media.tumblr.com/1522f4d5f9f2330abbe4b97b0d1fa727/78832183f21d43a3-3c/s640x960/2a5e31c961e97714eaf7c6c6aab36d8edd9d5e28.pnj)
 
 <details>
     <summary>𝗄𝗂𝗇𝗌</summary>
@@ -90,7 +90,7 @@
     </details>
 
 <div align="center">
-<IMG src="https://64.media.tumblr.com/4a86639cbab2ce2e6e49107f07fd71b0/6d12f0ecee1b5ac1-dd/s1280x1920/8aac286286c11802befba484ed4d3fc388983c8d.pnj"/>
+<IMG src="https://64.media.tumblr.com/fadba5b202affe4d1cd453a7b936e47c/78832183f21d43a3-0e/s640x960/584693b56c545bdcf4339206c978da97d26f4f07.pnj"/>
 
 <div align="center">
   <IMG src="https://64.media.tumblr.com/0742c22abbaa61245c5295a1de3101da/b51ac0c49b56aec9-a3/s100x200/37c1085d9547106375fc03c212fa17417143bfc7.gifv"/> 
