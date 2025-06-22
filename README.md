@@ -100,4 +100,4 @@
   <b><sup><sub>𝖠𝗌 𝗐𝖾 𝗋𝗈𝗌𝖾 𝗎𝗉 𝗈𝗎𝗋 𝗁𝖺𝗇𝖽𝗌 𝗍𝗈 𝗍𝗁𝖾 𝗌𝗄𝗒 𝖲𝗁𝗈𝗐𝗂𝗇𝗀 𝗈𝗎𝗋 𝗅𝗈𝗏𝖾 𝗍𝗈 𝖾𝗏𝖾𝗋𝗒 𝗌𝗍𝖺𝗋 𝖮𝗎𝗋 𝗅𝗂𝗏𝖾𝗌 𝖿𝖺𝖽𝖾𝖽 𝖺 𝗅𝗈𝗇𝗀 𝗍𝗂𝗆𝖾 𝖺𝗀𝗈 𝖨𝗇 𝗍𝗁𝖾 𝗐𝗈𝗋𝗅𝖽 𝗍𝗁𝖺𝗍 𝗐𝖾 𝗁𝖺𝗍𝖾𝖽, 𝗐𝗁𝖾𝗋𝖾 𝗐𝖾 𝗇𝖾𝗏𝖾𝗋 𝗄𝗇𝗈𝗐 𝖫𝗈𝗏𝖾..</sub></sup></b>
   <div align="center">
 
-  <IMG src="https://64.media.tumblr.com/517f6edd0f733dba7ee0137339c85377/a1cc1d8237f91ac6-6a/s640x960/829229aa7481e68d65466226c8b853192fed00da.gifv"/> 
+  <IMG src="https://s2.ezgif.com/tmp/ezgif-25d101495989b3.gif"/> 
