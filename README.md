@@ -4,7 +4,7 @@
 <div align="center">
 
 <b>![alt text](https://64.media.tumblr.com/27c6cf0846f68c2b01c0bc224f3f9efd/0f3a580eb152b514-58/s540x810/6bdfe904cd113c062e06f6201d3ce27f2b4d686b.gifv)<b>
-![alt text](https://64.media.tumblr.com/ecebaeddc7cdf3d54eee4c449d88913a/c949ee9db8d6a981-48/s500x750/a71a2faca8e21265d2945eb8f62ddd1a58e2a0d5.gifv)
+![alt text](https://media1.tenor.com/m/LCXEuIPRcPoAAAAd/cry-of-fear-cof.gif)
 <div align="center">
 
 <b><sup><sub>𝖳𝗁𝖾 𝖺𝗂𝗋 𝗋𝗂𝗉𝖾𝗇𝗌 𝗐𝗂𝗍𝗁 𝗍𝗁𝖾 𝗈𝖽𝗈𝗋𝗌 𝗈𝖿 𝗍𝗁𝖾 𝖽𝖾𝖺𝖽 𝖺𝗇𝖽 𝖽𝗒𝗂𝗇𝗀. 𝖨𝗍 𝗌𝗆𝖾𝗅𝗅𝗌 𝗅𝗂𝗄𝖾...𝗏𝗂𝖼𝗍𝗈𝗋𝗒.</sub></sup></b>
