@@ -18,7 +18,7 @@
 ![alt text](https://64.media.tumblr.com/e7d34c1078ddca1fa98d8158d250f2dd/df41b2e692546265-72/s1280x1920/875093fd1bb0ce2f49bcadfaa35b9879f42342a2.pnj)
 
 <p align="center">
-  <img src="https://s5.ezgif.com/tmp/ezgif-56e1529ecee6d5.gif" />
+  <img src="https://64.media.tumblr.com/a6827fa0eaa5c5c7e69499d7a0d25ff6/50a70b59a323716a-09/s100x200/c1762f2587832df6ae90c67ada513fee1d5b4720.gifv" />
   
 </p>
 
@@ -85,6 +85,10 @@
 <IMG src="https://64.media.tumblr.com/276a51a83663cea3723efb71af6c39ff/f8f0df836df385fa-8d/s100x200/e3cc776a551601f5c6fad32f648bded3d63f97c5.gifv"/>
 <IMG src="https://64.media.tumblr.com/d8fe66136f9622862fef409e97e6cba3/d466352a989a32b5-f8/s100x200/fc88f644fa0fe2ecb03989d1c3dad9a52d303de8.pnj"/>
 <IMG src="https://64.media.tumblr.com/92b3f5a598fa040fb13f79669b7850a3/d466352a989a32b5-62/s100x200/f829e96e9a3aa67f8ca3c60266ae0c75521aa42d.pnj"/>
+  <IMG src="https://64.media.tumblr.com/ac4e62713ef30beee05b7ef094293656/50a70b59a323716a-03/s100x200/b5b223cb0e57412a085676563a724f7dc6b8c2ad.pnj"/>
+    <IMG src="https://64.media.tumblr.com/6796a7f1fd3d08ea5102bd7ddd23018b/50a70b59a323716a-6d/s100x200/ee256e0075159f9aa2ae394b4af612d41d990abd.pnj"/>
+  <IMG src="https://64.media.tumblr.com/58e8f20bf6669572f8b8cdf74a8151ed/50a70b59a323716a-2b/s100x200/56563407bb7f1f313dc6ad09b617210b357095c7.pnj"/>
+  <IMG src="https://64.media.tumblr.com/24ecc97b9e41bd03fdb1cdfbd69dbd85/50a70b59a323716a-f7/s100x200/570ddd07ba1b58f8948b039fa64ca517a432cecc.pnj"/>
 <IMG src="https://64.media.tumblr.com/bfdbd2f84587c2b036031258f249ad23/d466352a989a32b5-8b/s100x200/049ae77399bdb5950ed3316a2adcd699deace05e.pnj"/>
 <IMG src="https://64.media.tumblr.com/5648ce04703fb7bcb3a80367b7719592/17bd8b808632808f-83/s250x400/e5f0ea9d9fea13804fd085f037d83d3768e022b8.gifv"/>
     </details>
@@ -100,4 +104,4 @@
   <b><sup><sub>𝖠𝗌 𝗐𝖾 𝗋𝗈𝗌𝖾 𝗎𝗉 𝗈𝗎𝗋 𝗁𝖺𝗇𝖽𝗌 𝗍𝗈 𝗍𝗁𝖾 𝗌𝗄𝗒 𝖲𝗁𝗈𝗐𝗂𝗇𝗀 𝗈𝗎𝗋 𝗅𝗈𝗏𝖾 𝗍𝗈 𝖾𝗏𝖾𝗋𝗒 𝗌𝗍𝖺𝗋 𝖮𝗎𝗋 𝗅𝗂𝗏𝖾𝗌 𝖿𝖺𝖽𝖾𝖽 𝖺 𝗅𝗈𝗇𝗀 𝗍𝗂𝗆𝖾 𝖺𝗀𝗈 𝖨𝗇 𝗍𝗁𝖾 𝗐𝗈𝗋𝗅𝖽 𝗍𝗁𝖺𝗍 𝗐𝖾 𝗁𝖺𝗍𝖾𝖽, 𝗐𝗁𝖾𝗋𝖾 𝗐𝖾 𝗇𝖾𝗏𝖾𝗋 𝗄𝗇𝗈𝗐 𝖫𝗈𝗏𝖾..</sub></sup></b>
   <div align="center">
 
-  <IMG src="https://s2.ezgif.com/tmp/ezgif-25d101495989b3.gif"/> 
+  <IMG src="https://64.media.tumblr.com/bbf39606d4ec42d65fa6b8d9191af5d7/ce6909cbe221e599-0a/s1280x1920/5bf1b515244d96dce1afa3b86ac630d7de79ef87.pnj"/> 
