@@ -4,10 +4,17 @@
 <div align="center">
 
 <b>![alt text](https://64.media.tumblr.com/7dea2a21a73276dd5da80e36275c9f3c/05e51809ca144598-1f/s640x960/e88880c0ba61fbd1cad7b108f83f0873c697a0b9.gifv)<b>
-![alt text](https://44.media.tumblr.com/1dd875f29a01f625adc9c29aa73604a9/bcd3ef6f95d07d2c-a1/s1280x1920_f1/74b6a7debe42a43a76192c98ac6c84d0459518c0.gifv)
+![alt text](https://media.tenor.com/2fxKtavtfwIAAAAi/tavros-nitram-homestuck.gif)
 <div align="center">
 
-<b><sup><sub>𝖸𝖾𝖺𝗁... 𝖨 𝗐𝖺𝗇𝗍𝖾𝖽 𝗍𝗈 𝗍𝖺𝗅𝗄 𝗍𝗈 𝗒𝗈𝗎. 𝖳𝗈 𝗀𝖾𝗍 𝖺𝗐𝖺𝗒 𝖿𝗋𝗈𝗆 𝗂𝗍 𝖺𝗅𝗅. 𝖭𝗈... 𝖠𝗐𝖺𝗒 𝖿𝗋𝗈𝗆 𝖾𝗏𝖾𝗋𝗒𝗍𝗁𝗂𝗇𝗀, 𝖺𝗐𝖺𝗒 𝖿𝗋𝗈𝗆 𝖺𝗅𝗅 𝗍𝗁𝗂𝗌..</sub></sup></b>
+<b><sup><sub>AT: aND NOW, tHEY FEEL,
+AT: iNVISIBLE,
+AT: wOW, i'M SURE THERE WAS A BETTER WAY TO SAY THAT,
+AT: aNYWAY,
+AT: tHAT'S REALLY ALL THERE IS,
+AT: tO REPORT ON THE SUBJECT,
+AT: oF ME GETTING HURT,
+</sub></sup></b>
 <p align="center">
   <img src="https://64.media.tumblr.com/cdb1a062c5b241ff54bda869be6b8fda/e9469f27eefa44ad-4c/s75x75_c1/e920215a50b2af7832d1e2ca35d88f4b84a2b5ac.gifv" />
 </p>
@@ -18,7 +25,7 @@
 ![alt text](https://64.media.tumblr.com/e7d34c1078ddca1fa98d8158d250f2dd/df41b2e692546265-72/s1280x1920/875093fd1bb0ce2f49bcadfaa35b9879f42342a2.pnj)
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/a6827fa0eaa5c5c7e69499d7a0d25ff6/50a70b59a323716a-09/s100x200/c1762f2587832df6ae90c67ada513fee1d5b4720.gifv" />
+  <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/11013e70-5f9f-4376-b162-5535330d533e/d3hbdbt-94696dcc-f5c9-4ffa-9254-1ac4e9ade0d3.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzExMDEzZTcwLTVmOWYtNDM3Ni1iMTYyLTU1MzUzMzBkNTMzZVwvZDNoYmRidC05NDY5NmRjYy1mNWM5LTRmZmEtOTI1NC0xYWM0ZTlhZGUwZDMuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.ljWnPraq4Yk3aiINGloeufvxEhjddXNgnlUe0-wUxgA" />
   
 </p>
 
@@ -97,7 +104,7 @@
 <IMG src="https://64.media.tumblr.com/fadba5b202affe4d1cd453a7b936e47c/78832183f21d43a3-0e/s640x960/584693b56c545bdcf4339206c978da97d26f4f07.pnj"/>
 
 <div align="center">
-  <IMG src="https://64.media.tumblr.com/0742c22abbaa61245c5295a1de3101da/b51ac0c49b56aec9-a3/s100x200/37c1085d9547106375fc03c212fa17417143bfc7.gifv"/> 
+  <IMG src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/668320ee-f33b-41b2-a769-76b8b10407a7/d4ako4s-42cc740b-4aeb-4c97-94aa-1960f87048b7.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzY2ODMyMGVlLWYzM2ItNDFiMi1hNzY5LTc2YjhiMTA0MDdhN1wvZDRha280cy00MmNjNzQwYi00YWViLTRjOTctOTRhYS0xOTYwZjg3MDQ4YjcucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.cYExWpG9nPiwqwf2o_6ANMre8FYgoJ6cqGWEja8NDa8"/> 
 
 
   <div align="center">
