@@ -10,13 +10,11 @@
 ![alt text](https://media.tenor.com/LKRriiYBhkMAAAAj/kagami-lucky-star.gif)
 <div align="center">
 
-<b><sup><sub>AT: aND NOW, tHEY FEEL,
-AT: iNVISIBLE,
-AT: wOW, i'M SURE THERE WAS A BETTER WAY TO SAY THAT,
-AT: aNYWAY,
-AT: tHAT'S REALLY ALL THERE IS,
-AT: tO REPORT ON THE SUBJECT,
-AT: oF ME GETTING HURT,
+<b><sup><sub>"𝘉𝘺 𝘧𝘢𝘳, 𝘵𝘩𝘦 𝘭𝘢𝘳𝘨𝘦𝘴𝘵 𝘯𝘶𝘮𝘣𝘦𝘳𝘴 𝘰𝘧 𝘰𝘷𝘦𝘳𝘵 𝘚𝘢𝘵𝘢𝘯 𝘸𝘰𝘳𝘴𝘩𝘪𝘱𝘱𝘦𝘳𝘴 𝘢𝘳𝘦 𝘵𝘦𝘦𝘯𝘢𝘨𝘦𝘳𝘴, 
+𝘳𝘶𝘯𝘢𝘸𝘢𝘺𝘴, 𝘢𝘯𝘥 𝘥𝘳𝘰𝘱𝘰𝘶𝘵𝘴.
+𝘌𝘪𝘵𝘩𝘦𝘳 𝘳𝘦𝘣𝘦𝘭𝘭𝘪𝘯𝘨 𝘢𝘨𝘢𝘪𝘯𝘴𝘵, 𝘰𝘳 𝘢𝘣𝘢𝘯𝘥𝘰𝘯𝘦𝘥 𝘣𝘺
+𝘊𝘩𝘳𝘪𝘴𝘵𝘪𝘢𝘯 𝘱𝘢𝘳𝘦𝘯𝘵𝘴 𝘢𝘯𝘥 𝘊𝘩𝘳𝘪𝘴𝘵𝘪𝘢𝘯 𝘴𝘰𝘤𝘪𝘦𝘵𝘺"
+( ˵-ᴗ•)╦̵̵̿╤─
 </sub></sup></b>
 <p align="center">
   <img src="https://64.media.tumblr.com/cdb1a062c5b241ff54bda869be6b8fda/e9469f27eefa44ad-4c/s75x75_c1/e920215a50b2af7832d1e2ca35d88f4b84a2b5ac.gifv" />
@@ -59,6 +57,9 @@ AT: oF ME GETTING HURT,
     <IMG src="https://64.media.tumblr.com/5ba76361e45daaef13535aad01c86807/dd55da2effe7c2f5-38/s400x600/f221792b174733a5b4ae395aae757c98f485dbaf.pnj"  alt="https://64.media.tumblr.com/41c44bf417784bdab8f3a344af44cfd3/dd55da2effe7c2f5-be/s400x600/93edfddcc890dbf7f126643331c96d8a2fa970c7.pnj"/>
   <IMG src="https://64.media.tumblr.com/3f12437e2f443f939806544e632ac21c/dd55da2effe7c2f5-eb/s400x600/662f285d6b93d9b6661e8d2c864518bfa4240c9d.pnj"  alt="https://64.media.tumblr.com/41c44bf417784bdab8f3a344af44cfd3/dd55da2effe7c2f5-be/s400x600/93edfddcc890dbf7f126643331c96d8a2fa970c7.pnj"/>
     <IMG src="https://64.media.tumblr.com/b7ed0b25c9ff9c362271f920642ab12e/c78ee21d39431a68-a4/s1280x1920/3a4212a0a187d31d1ef8d8718205ca0b27480468.pnj"  alt="https://64.media.tumblr.com/41c44bf417784bdab8f3a344af44cfd3/dd55da2effe7c2f5-be/s400x600/93edfddcc890dbf7f126643331c96d8a2fa970c7.pnj"/>
+   <IMG src="https://64.media.tumblr.com/6f3bfeb00bb0aff5bfc7aa283ce75c2d/20eece10a3a21caa-96/s400x600/114461cd6c5bdbffc5d096308fba4a5c7c8a8ccd.pnj"/>
+   <IMG src="https://64.media.tumblr.com/dabde60d02057ee5b11352542616277b/20eece10a3a21caa-d5/s400x600/1586c880191dc7ffd01b1d73825eccea7fc920c2.pnj"/>
+   <IMG src="https://64.media.tumblr.com/bed5cb8282ef369830424f96e6a16864/20eece10a3a21caa-94/s400x600/79b3cd608becdc9d1253e3521983d3b333a2c299.pnj"/>
     </details>
 <details>
     <summary>𝗌𝗍𝖺𝗆𝗉𝗌</summary>
@@ -120,7 +121,7 @@ AT: oF ME GETTING HURT,
 
 
   <div align="center">
-  <b><sup><sub>𝖠𝗌 𝗐𝖾 𝗋𝗈𝗌𝖾 𝗎𝗉 𝗈𝗎𝗋 𝗁𝖺𝗇𝖽𝗌 𝗍𝗈 𝗍𝗁𝖾 𝗌𝗄𝗒 𝖲𝗁𝗈𝗐𝗂𝗇𝗀 𝗈𝗎𝗋 𝗅𝗈𝗏𝖾 𝗍𝗈 𝖾𝗏𝖾𝗋𝗒 𝗌𝗍𝖺𝗋 𝖮𝗎𝗋 𝗅𝗂𝗏𝖾𝗌 𝖿𝖺𝖽𝖾𝖽 𝖺 𝗅𝗈𝗇𝗀 𝗍𝗂𝗆𝖾 𝖺𝗀𝗈 𝖨𝗇 𝗍𝗁𝖾 𝗐𝗈𝗋𝗅𝖽 𝗍𝗁𝖺𝗍 𝗐𝖾 𝗁𝖺𝗍𝖾𝖽, 𝗐𝗁𝖾𝗋𝖾 𝗐𝖾 𝗇𝖾𝗏𝖾𝗋 𝗄𝗇𝗈𝗐 𝖫𝗈𝗏𝖾..</sub></sup></b>
+  <b><sup><sub>𝗧𝗵𝗮𝗻𝗸 𝗧𝗼𝗿𝘀𝗼𝗳𝘂𝗰𝗸 𝗳𝗼𝗿 𝘆𝗼𝘂𝗿 𝗹𝗮𝗱𝗶𝗲𝘀 𝘃𝗼𝗺𝗶𝘁𝗶𝗻𝗴 𝗼𝗻 𝘁𝗵𝗲 𝗮𝗹𝗯𝘂𝗺 𝗰𝗼𝘃𝗲𝗿𝘀 & 𝙣𝙤𝙬 𝙄 𝙝𝙖𝙫𝙚 𝙖 𝙗𝙤𝙣𝙚𝙧 𝙩𝙝𝙖𝙣𝙠𝙨 𝙖 𝙡𝙤𝙩 𝙨𝙢𝙝 ( ｡ •̀ ᴖ •́ ｡) </sub></sup></b>
   <div align="center">
 
   <IMG src="https://64.media.tumblr.com/a7773e4409dd2f3890fce2792afc0fa7/143671e19cac6236-f7/s500x750/7456f053d1f74886b448f4fe058e0433c59a6e71.gif"/> 
