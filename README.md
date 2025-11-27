@@ -3,8 +3,11 @@
 
 <div align="center">
 
-<b>![alt text](https://64.media.tumblr.com/7dea2a21a73276dd5da80e36275c9f3c/05e51809ca144598-1f/s640x960/e88880c0ba61fbd1cad7b108f83f0873c697a0b9.gifv)<b>
-![alt text](https://media.tenor.com/2fxKtavtfwIAAAAi/tavros-nitram-homestuck.gif)
+<b>![alt text](https://64.media.tumblr.com/0b07f7e686748319f8c2ec135851d67c/ddb75fe1265919cb-65/s250x400/4996505c492a00628315ec4e380d86a884f50ece.gif)<b>
+
+<div align="center">
+
+![alt text](https://media.tenor.com/LKRriiYBhkMAAAAj/kagami-lucky-star.gif)
 <div align="center">
 
 <b><sup><sub>AT: aND NOW, tHEY FEEL,
@@ -22,10 +25,15 @@ AT: oF ME GETTING HURT,
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=kottbullarcat)
 
 
-![alt text](https://64.media.tumblr.com/e7d34c1078ddca1fa98d8158d250f2dd/df41b2e692546265-72/s1280x1920/875093fd1bb0ce2f49bcadfaa35b9879f42342a2.pnj)
+![alt text](https://64.media.tumblr.com/a91a02c465e7e27b2e46427d25ab1370/ddb75fe1265919cb-c5/s250x400/25dd5f0f296a871f0d8d10614ecf760cd609e8e6.gif)
+![alt text](https://64.media.tumblr.com/a91a02c465e7e27b2e46427d25ab1370/ddb75fe1265919cb-c5/s250x400/25dd5f0f296a871f0d8d10614ecf760cd609e8e6.gif)
 
 <p align="center">
-  <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/11013e70-5f9f-4376-b162-5535330d533e/d3hbdbt-94696dcc-f5c9-4ffa-9254-1ac4e9ade0d3.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzExMDEzZTcwLTVmOWYtNDM3Ni1iMTYyLTU1MzUzMzBkNTMzZVwvZDNoYmRidC05NDY5NmRjYy1mNWM5LTRmZmEtOTI1NC0xYWM0ZTlhZGUwZDMuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.ljWnPraq4Yk3aiINGloeufvxEhjddXNgnlUe0-wUxgA" />
+  <img src="https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExcXJvMXV4cDZreHNhYm5xc3pucDZjdnZleWx5enEwZGg4d3JsbjBtZyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/qdmknhhfbaPbybg0te/giphy.gif" />
+
+![alt text](https://64.media.tumblr.com/a91a02c465e7e27b2e46427d25ab1370/ddb75fe1265919cb-c5/s250x400/25dd5f0f296a871f0d8d10614ecf760cd609e8e6.gif)
+![alt text](https://64.media.tumblr.com/a91a02c465e7e27b2e46427d25ab1370/ddb75fe1265919cb-c5/s250x400/25dd5f0f296a871f0d8d10614ecf760cd609e8e6.gif)
+
   
 </p>
 
@@ -34,7 +42,11 @@ AT: oF ME GETTING HURT,
 <b><sup><sub>𝗁𝗂, 𝗂𝗆 𝗆𝖺𝖽𝗓, 𝗂 𝗐𝗈𝗇𝗍 𝗋𝖾𝖺𝗅𝗅𝗒 𝗍𝖺𝗅𝗄 𝗍𝗈 𝗌𝗍𝗋𝖺𝗇𝗀𝖾𝗋𝗌 𝖻𝗎𝗍 𝗇𝗈𝗋𝗆𝖺𝗅𝗅𝗒 𝗂𝗍𝗌 𝖶2𝗂 𝖿𝗈𝗋 𝗆𝖾. 𝖨 am bipolar 𝗌𝗈 𝗂𝗇𝗍𝖾𝗋𝖺𝖼𝗍 𝖼𝖺𝗋𝖾𝖿𝗎𝗅𝗅𝗒, 𝖻𝗎𝗍 𝗈𝗏𝖾𝗋𝖺𝗅𝗅 𝖨’𝗆 𝖿𝗋𝗂𝖾𝗇𝖽𝗅𝗒 𝖾𝗇𝗈𝗎𝗀𝗁 𝗅𝗈𝗅. 𝖨’𝗆 𝗂𝗇𝗍𝗈 𝗏𝖾𝗋𝗒 𝗐𝖾𝗂𝗋𝖽 𝗍𝗁𝗂𝗇𝗀𝗌 𝗌𝗈 𝗂𝖿 𝗒𝗈𝗎 𝖽𝗈𝗇’𝗍 𝗅𝗂𝗄𝖾 𝗂𝗍 𝗂 𝗐𝗈𝗎𝗅𝖽 𝗌𝗍𝗋𝗈𝗇𝗀𝗅𝗒 𝗋𝖾𝖼𝗈𝗆𝗆𝖾𝗇𝖽 𝗒𝗈𝗎 𝖻𝗅𝗈𝖼𝗄 𝗆𝖾 𝖻𝖾𝖿𝗈𝗋𝖾 𝖼𝖺𝗎𝗌𝗂𝗇𝗀 𝗌𝗈𝗆𝖾 𝗌𝗍𝗎𝗉𝗂𝖽 𝗋𝖾𝗍𝖺𝗋𝖽𝖾𝖽 𝖽𝗋𝖺𝗆𝖺, 𝗍𝗁𝖺𝗇𝗄𝗌. 𝖺𝗅𝗌𝗈, 𝗂 𝖺𝗆 15 𝗌𝗈 𝗉𝗅𝖾𝖺𝗌𝖾 𝗂𝖿 𝗒𝗈𝗎 𝖺𝗋𝖾 18 𝗈𝗋 𝗈𝗅𝖽𝖾𝗋; 𝗋𝖾𝖿𝗋𝖺𝗂𝗇 𝖿𝗋𝗈𝗆 𝗍𝖺𝗅𝗄𝗂𝗇𝗀 𝗍𝗈 𝗆𝖾.</sub></sup></b>
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31b2yffynub6sxiq65xwurwdgcuq&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=6c0200&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
-![alt text](https://64.media.tumblr.com/1522f4d5f9f2330abbe4b97b0d1fa727/78832183f21d43a3-3c/s640x960/2a5e31c961e97714eaf7c6c6aab36d8edd9d5e28.pnj)
+
+<p align="center">
+
+![alt text](https://64.media.tumblr.com/ca1a718bdd1b51f2c58fbd7b3c81d077/ddb75fe1265919cb-cc/s250x400/689313bc629ec9c0534135fa204ba4dbc0e7c8fc.gif)
+![alt text](https://64.media.tumblr.com/ca1a718bdd1b51f2c58fbd7b3c81d077/ddb75fe1265919cb-cc/s250x400/689313bc629ec9c0534135fa204ba4dbc0e7c8fc.gif)
 
 <details>
     <summary>𝗄𝗂𝗇𝗌</summary>
@@ -101,14 +113,14 @@ AT: oF ME GETTING HURT,
     </details>
 
 <div align="center">
-<IMG src="https://64.media.tumblr.com/fadba5b202affe4d1cd453a7b936e47c/78832183f21d43a3-0e/s640x960/584693b56c545bdcf4339206c978da97d26f4f07.pnj"/>
+<IMG src="https://64.media.tumblr.com/d24055e784098cb5e6baeb5b91d2d2ea/e93a9c44ea245c7f-61/s250x400/7abc67de59909d4218df7d1e9ff06784704e5d3f.gif"/>
 
 <div align="center">
-  <IMG src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/668320ee-f33b-41b2-a769-76b8b10407a7/d4ako4s-42cc740b-4aeb-4c97-94aa-1960f87048b7.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzY2ODMyMGVlLWYzM2ItNDFiMi1hNzY5LTc2YjhiMTA0MDdhN1wvZDRha280cy00MmNjNzQwYi00YWViLTRjOTctOTRhYS0xOTYwZjg3MDQ4YjcucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.cYExWpG9nPiwqwf2o_6ANMre8FYgoJ6cqGWEja8NDa8"/> 
+  <IMG src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/4012c6d2-c497-426d-9583-d38431bf45ae/db1c5ac-9ececcde-b59a-41f0-b83e-d01eeadbd0c4.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi80MDEyYzZkMi1jNDk3LTQyNmQtOTU4My1kMzg0MzFiZjQ1YWUvZGIxYzVhYy05ZWNlY2NkZS1iNTlhLTQxZjAtYjgzZS1kMDFlZWFkYmQwYzQucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.DT1RQOiZTJ_altOxbaSwCAYuUljloiRgE-ZcaGctce0"/> 
 
 
   <div align="center">
   <b><sup><sub>𝖠𝗌 𝗐𝖾 𝗋𝗈𝗌𝖾 𝗎𝗉 𝗈𝗎𝗋 𝗁𝖺𝗇𝖽𝗌 𝗍𝗈 𝗍𝗁𝖾 𝗌𝗄𝗒 𝖲𝗁𝗈𝗐𝗂𝗇𝗀 𝗈𝗎𝗋 𝗅𝗈𝗏𝖾 𝗍𝗈 𝖾𝗏𝖾𝗋𝗒 𝗌𝗍𝖺𝗋 𝖮𝗎𝗋 𝗅𝗂𝗏𝖾𝗌 𝖿𝖺𝖽𝖾𝖽 𝖺 𝗅𝗈𝗇𝗀 𝗍𝗂𝗆𝖾 𝖺𝗀𝗈 𝖨𝗇 𝗍𝗁𝖾 𝗐𝗈𝗋𝗅𝖽 𝗍𝗁𝖺𝗍 𝗐𝖾 𝗁𝖺𝗍𝖾𝖽, 𝗐𝗁𝖾𝗋𝖾 𝗐𝖾 𝗇𝖾𝗏𝖾𝗋 𝗄𝗇𝗈𝗐 𝖫𝗈𝗏𝖾..</sub></sup></b>
   <div align="center">
 
-  <IMG src="https://64.media.tumblr.com/bbf39606d4ec42d65fa6b8d9191af5d7/ce6909cbe221e599-0a/s1280x1920/5bf1b515244d96dce1afa3b86ac630d7de79ef87.pnj"/> 
+  <IMG src="https://64.media.tumblr.com/a7773e4409dd2f3890fce2792afc0fa7/143671e19cac6236-f7/s500x750/7456f053d1f74886b448f4fe058e0433c59a6e71.gif"/> 
