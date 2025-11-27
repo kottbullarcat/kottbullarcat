@@ -48,6 +48,8 @@
 
 <details>
     <summary>𝗄𝗂𝗇𝗌</summary>
+
+  <div align="center">
     <IMG src="https://64.media.tumblr.com/41c44bf417784bdab8f3a344af44cfd3/dd55da2effe7c2f5-be/s400x600/93edfddcc890dbf7f126643331c96d8a2fa970c7.pnj"  alt="https://64.media.tumblr.com/41c44bf417784bdab8f3a344af44cfd3/dd55da2effe7c2f5-be/s400x600/93edfddcc890dbf7f126643331c96d8a2fa970c7.pnj"/>
    <IMG src="https://64.media.tumblr.com/38a0f3cfc87f5379c6f59ca6e9cc678b/dd55da2effe7c2f5-ad/s400x600/4fe09b8921e23d6dc96d341d3816f4341dd8d224.pnj"  alt="https://64.media.tumblr.com/41c44bf417784bdab8f3a344af44cfd3/dd55da2effe7c2f5-be/s400x600/93edfddcc890dbf7f126643331c96d8a2fa970c7.pnj"/>
   <IMG src="https://64.media.tumblr.com/f874b36888302e2a642f03e970eb8c27/11d6d6494b2fcbf7-c8/s400x600/3ce2997aca97ff7920bb182aab5dc7f9f9847513.pnj"  alt="https://64.media.tumblr.com/41c44bf417784bdab8f3a344af44cfd3/dd55da2effe7c2f5-be/s400x600/93edfddcc890dbf7f126643331c96d8a2fa970c7.pnj"/>
@@ -60,6 +62,7 @@
    <IMG src="https://64.media.tumblr.com/6f3bfeb00bb0aff5bfc7aa283ce75c2d/20eece10a3a21caa-96/s400x600/114461cd6c5bdbffc5d096308fba4a5c7c8a8ccd.pnj"/>
    <IMG src="https://64.media.tumblr.com/dabde60d02057ee5b11352542616277b/20eece10a3a21caa-d5/s400x600/1586c880191dc7ffd01b1d73825eccea7fc920c2.pnj"/>
    <IMG src="https://64.media.tumblr.com/bed5cb8282ef369830424f96e6a16864/20eece10a3a21caa-94/s400x600/79b3cd608becdc9d1253e3521983d3b333a2c299.pnj"/>
+     <IMG src="https://64.media.tumblr.com/bb542fc5343b2d0a52b8b3b94d8ca877/50f10263639a58b7-2c/s400x600/9ec32d2c501fad7f21ab752004703ce6a0c8a2bd.webp"/>
     </details>
 <details>
     <summary>𝗌𝗍𝖺𝗆𝗉𝗌</summary>
