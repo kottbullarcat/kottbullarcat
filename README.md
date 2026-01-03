@@ -3,28 +3,26 @@
 
 <div align="center">
 
-<b>![alt text](https://64.media.tumblr.com/0b07f7e686748319f8c2ec135851d67c/ddb75fe1265919cb-65/s250x400/4996505c492a00628315ec4e380d86a884f50ece.gif)<b>
+<b>![alt text](https://64.media.tumblr.com/fa6a2b9b7b4fb3ac9cc53d8c16cc11e0/4d713522c0d06785-84/s1280x1920/d9df8f9485b99cfd64a2db13b305562a4e632f2b.webp)<b>
 
 <div align="center">
 
 ![alt text](https://media.tenor.com/LKRriiYBhkMAAAAj/kagami-lucky-star.gif)
 <div align="center">
 
-<b><sup><sub>"𝘉𝘺 𝘧𝘢𝘳, 𝘵𝘩𝘦 𝘭𝘢𝘳𝘨𝘦𝘴𝘵 𝘯𝘶𝘮𝘣𝘦𝘳𝘴 𝘰𝘧 𝘰𝘷𝘦𝘳𝘵 𝘚𝘢𝘵𝘢𝘯 𝘸𝘰𝘳𝘴𝘩𝘪𝘱𝘱𝘦𝘳𝘴 𝘢𝘳𝘦 𝘵𝘦𝘦𝘯𝘢𝘨𝘦𝘳𝘴, 
-𝘳𝘶𝘯𝘢𝘸𝘢𝘺𝘴, 𝘢𝘯𝘥 𝘥𝘳𝘰𝘱𝘰𝘶𝘵𝘴.
-𝘌𝘪𝘵𝘩𝘦𝘳 𝘳𝘦𝘣𝘦𝘭𝘭𝘪𝘯𝘨 𝘢𝘨𝘢𝘪𝘯𝘴𝘵, 𝘰𝘳 𝘢𝘣𝘢𝘯𝘥𝘰𝘯𝘦𝘥 𝘣𝘺
-𝘊𝘩𝘳𝘪𝘴𝘵𝘪𝘢𝘯 𝘱𝘢𝘳𝘦𝘯𝘵𝘴 𝘢𝘯𝘥 𝘊𝘩𝘳𝘪𝘴𝘵𝘪𝘢𝘯 𝘴𝘰𝘤𝘪𝘦𝘵𝘺"
-( ˵-ᴗ•)╦̵̵̿╤─
+<b><sup><sub>"ꜱᴇᴄʀᴇᴛ ɪꜱ, ɪ ᴊᴜꜱᴛ ʟᴏᴠᴇ ᴄʀɪᴍɪɴᴀʟꜱ. 
+ᴀɴᴅ ɪ'ᴍ ɢᴏɴɴᴀ ʟᴏᴠᴇ ʏᴏᴜ ʜᴀʀᴅ ᴇɴᴏᴜɢʜ ᴛᴏ ᴅᴏ 
+ᴛʜᴇ ᴋɪɴᴅ ᴏғ ᴅᴀᴍᴀɢᴇ ᴀ ʙᴏᴅʏ ᴅᴏɴ'ᴛ ʀᴇᴄᴏᴠᴇʀ ғʀᴏᴍ."
+ ദ്ദി ˉ͈̀꒳ˉ͈́ )✧
 </sub></sup></b>
 <p align="center">
-  <img src="https://64.media.tumblr.com/cdb1a062c5b241ff54bda869be6b8fda/e9469f27eefa44ad-4c/s75x75_c1/e920215a50b2af7832d1e2ca35d88f4b84a2b5ac.gifv" />
+  <img src="https://64.media.tumblr.com/e27409c695893bb4c7dc2f92c56ebe5f/f208faac9dee69c9-17/s250x400/9db0707146261203898060d73517f880119b62c1.pnj" />
 </p>
 
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=kottbullarcat)
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=kottbullarcat&color=8b0000)
 
 
-![alt text](https://64.media.tumblr.com/a91a02c465e7e27b2e46427d25ab1370/ddb75fe1265919cb-c5/s250x400/25dd5f0f296a871f0d8d10614ecf760cd609e8e6.gif)
-![alt text](https://64.media.tumblr.com/a91a02c465e7e27b2e46427d25ab1370/ddb75fe1265919cb-c5/s250x400/25dd5f0f296a871f0d8d10614ecf760cd609e8e6.gif)
+![alt text](https://64.media.tumblr.com/846416ea24bd35c8b5cb7402ce9fd17a/4d713522c0d06785-2e/s640x960/04730791d1e569b731fd4ab219e0ba9dc9eec8b5.pnj)
 
 <p align="center">
   <img src="https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExcXJvMXV4cDZreHNhYm5xc3pucDZjdnZleWx5enEwZGg4d3JsbjBtZyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/qdmknhhfbaPbybg0te/giphy.gif" />
