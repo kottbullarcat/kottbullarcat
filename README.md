@@ -7,6 +7,9 @@
 
 <div align="center">
 
+<b>![alt text](https://64.media.tumblr.com/537cf49bff4c501d2a88a2e2f1b189c3/e8c9a5af56d6e4bf-8c/s250x400/9bd3b5f311ff5fabd1be725f39d456d720c495ad.pnj)<b>
+
+
 ![alt text](https://media.tenor.com/eXBepIQEGXUAAAAj/leland-coyle.gif)
 <div align="center">
 
