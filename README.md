@@ -7,7 +7,7 @@
 
 <div align="center">
 
-![alt text](https://media.tenor.com/LKRriiYBhkMAAAAj/kagami-lucky-star.gif)
+![alt text](https://44.media.tumblr.com/aed5bd015c7412d0951ae11ec8dee41c/a067934afa8ab286-d0/s1280x1920_f1/95261ac901a7e6e369d3d04341f5398d91e9cf62.gifv)
 <div align="center">
 
 <b><sup><sub>"ꜱᴇᴄʀᴇᴛ ɪꜱ, ɪ ᴊᴜꜱᴛ ʟᴏᴠᴇ ᴄʀɪᴍɪɴᴀʟꜱ. 
