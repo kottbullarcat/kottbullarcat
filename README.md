@@ -5,10 +5,14 @@
 
 <b>![alt text](https://64.media.tumblr.com/fa6a2b9b7b4fb3ac9cc53d8c16cc11e0/4d713522c0d06785-84/s1280x1920/d9df8f9485b99cfd64a2db13b305562a4e632f2b.webp)<b>
 
+<b>![alt text](https://neckdoll.zombie.jp/material/line/latex/line-latex-003.gif)<b>
+
+
 <div align="center">
 
 <b>![alt text](https://64.media.tumblr.com/537cf49bff4c501d2a88a2e2f1b189c3/e8c9a5af56d6e4bf-8c/s250x400/9bd3b5f311ff5fabd1be725f39d456d720c495ad.pnj)<b>
 
+<b>![alt text](https://i.postimg.cc/J4qZdZP5/IMG-2166.gif)<b>
 
 ![alt text](https://media.tenor.com/eXBepIQEGXUAAAAj/leland-coyle.gif)
 <div align="center">
