@@ -7,7 +7,7 @@
 
 <div align="center">
 
-![alt text](https://44.media.tumblr.com/aed5bd015c7412d0951ae11ec8dee41c/a067934afa8ab286-d0/s1280x1920_f1/95261ac901a7e6e369d3d04341f5398d91e9cf62.gifv)
+![alt text](https://media.discordapp.net/attachments/1188421298481807433/1457166137153556551/IMG_0903.gif?ex=695b0337&is=6959b1b7&hm=8deaef0f12501a9e22bfe3f361d1ee040a3a27b85ff51825e0292295784011ab&=&width=558&height=848)
 <div align="center">
 
 <b><sup><sub>"ꜱᴇᴄʀᴇᴛ ɪꜱ, ɪ ᴊᴜꜱᴛ ʟᴏᴠᴇ ᴄʀɪᴍɪɴᴀʟꜱ. 
