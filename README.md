@@ -7,11 +7,10 @@
 
 <div align="center">
 
-<b>![alt text](https://64.media.tumblr.com/537cf49bff4c501d2a88a2e2f1b189c3/e8c9a5af56d6e4bf-8c/s250x400/9bd3b5f311ff5fabd1be725f39d456d720c495ad.pnj)<b>
 
 <b>![alt text](https://neckdoll.zombie.jp/material/line/latex/line-latex-003.gif)<b>
 
-![alt text](https://media.tenor.com/eXBepIQEGXUAAAAj/leland-coyle.gif)
+![alt text](https://64.media.tumblr.com/01ca94ce8be2d96c1b60025bba3ff1eb/8154d777d146658f-e2/s500x750/2cbbe5ccef6ac1807daa4c4276a4c6922259cca7.pnj)
 <div align="center">
 
 <b><sup><sub>"ꜱᴇᴄʀᴇᴛ ɪꜱ, ɪ ᴊᴜꜱᴛ ʟᴏᴠᴇ ᴄʀɪᴍɪɴᴀʟꜱ. 
