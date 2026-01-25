@@ -12,9 +12,11 @@
 ![alt text](https://64.media.tumblr.com/0be432c1bafde0fb486921dbf0dfa561/3c52b18070abeafe-65/s400x600/efaa2bf34a9d77f03be834cec1d6b7bac95ca736.gifv)
 <div align="center">
 
-<b><sup><sub>"ꜱᴇᴄʀᴇᴛ ɪꜱ, ɪ ᴊᴜꜱᴛ ʟᴏᴠᴇ ᴄʀɪᴍɪɴᴀʟꜱ. 
-ᴀɴᴅ ɪ'ᴍ ɢᴏɴɴᴀ ʟᴏᴠᴇ ʏᴏᴜ ʜᴀʀᴅ ᴇɴᴏᴜɢʜ ᴛᴏ ᴅᴏ 
-ᴛʜᴇ ᴋɪɴᴅ ᴏғ ᴅᴀᴍᴀɢᴇ ᴀ ʙᴏᴅʏ ᴅᴏɴ'ᴛ ʀᴇᴄᴏᴠᴇʀ ғʀᴏᴍ."
+<b><sup><sub>
+ɪ ᴀᴍ ɪғ ᴄᴏʏʟᴇ 
+ᴡᴀs ᴀ ᴘᴀʟᴇ ᴛᴇᴇɴᴀɢᴇ
+sᴡᴇᴅɪsʜ ᴡᴏᴍᴀɴ
+ɪ ᴀᴍ ʜɪᴍ
  ദ്ദി ˉ͈̀꒳ˉ͈́ )✧
 </sub></sup></b>
 <p align="center">
