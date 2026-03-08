@@ -3,39 +3,37 @@
 
 <div align="center">
 
-<b>![alt text](https://64.media.tumblr.com/0ea9649abf814e9eeadbf1177e082e9c/58006214b1c2dc17-b9/s400x600/ee31001e6ffa558d8dee4923bbb22590e262cabe.pnj)<b>
+<b>![alt text](https://neckdoll.zombie.jp/material/line/tsuta2/line-tsuta01.gif)<b>
 
 
 <div align="center">
 
 
-![alt text](https://64.media.tumblr.com/0be432c1bafde0fb486921dbf0dfa561/3c52b18070abeafe-65/s400x600/efaa2bf34a9d77f03be834cec1d6b7bac95ca736.gifv)
+![alt text](https://media1.tenor.com/m/1qx9hu9mJh0AAAAC/cry-of-fear-cof.gif)
 <div align="center">
 
 <b><sup><sub>
-ɪ ᴀᴍ ɪғ ᴄᴏʏʟᴇ 
-ᴡᴀs ᴀ ᴘᴀʟᴇ ᴛᴇᴇɴᴀɢᴇ
-sᴡᴇᴅɪsʜ ᴡᴏᴍᴀɴ
-ɪ ᴀᴍ ʜɪᴍ
-& ɪ ᴡɪʟʟ ᴅɪᴄᴋʀɪᴅᴇ ʜɪᴍ
- ദ്ദി ˉ͈̀꒳ˉ͈́ )✧
+I'ᴠᴇ ᴀʟᴡᴀʏs ʟɪᴋᴇᴅ ʏᴏᴜ ᴛᴏᴏ,
+ʙᴜᴛ...
+ɴᴏᴛ ɪɴ ᴛʜᴀᴛ ᴡᴀʏ.
+ ( • ᴖ • ｡)
 </sub></sup></b>
 <p align="center">
 
-<b>![alt text](https://64.media.tumblr.com/c33a97825351f9007977f32e592ae95f/314c47c728e936a0-ae/s100x200/3d2243d6e7329b670d26ece9531951525516f4b0.gifv)<b>
+<b>![alt text](https://64.media.tumblr.com/0742c22abbaa61245c5295a1de3101da/b51ac0c49b56aec9-a3/s100x200/37c1085d9547106375fc03c212fa17417143bfc7.gifv)<b>
 
 <b>![alt text](https://neckdoll.zombie.jp/material/jou/line/line-yuushitetusen001.gif)<b>
  
-  <img src="https://neckdoll.zombie.jp/material/icon/tejyou/icon-tejou-0002.gif" />
+  <img src="https://neckdoll.zombie.jp/material/icon/icon-kamisori/icon-kamisori-1.gif" />
 </p>
 
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=kottbullarcat&color=7fc6d7)
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=kottbullarcat&color=2b0001)
 
 
-![alt text](https://64.media.tumblr.com/100c862f2a9c26e89bf75fc1b4fca7aa/58006214b1c2dc17-72/s400x600/d3f5f1aba4993286981b150281bcd25f6162543a.pnj)
+![alt text](https://neckdoll.zombie.jp/material/line/tsuta2/line-tsuta04.gif)
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/2808cef7460b74d551b22d1fa2a9d546/aac20c984dfa71cd-5c/s100x200/c3f6c8a1048470ac8759d793947e83929803adc9.webp" />
+  <img src="https://64.media.tumblr.com/6b6e7b072150ce45946e5b548ad71570/72a9721707f6aa74-ae/s100x200/037d2786d99ca77ec13eb25da6a3526ad0e6a9ad.gifv" />
 
 ![alt text](https://neckdoll.zombie.jp/material/line/goth-race/line-goth02.gif)
 
@@ -47,4 +45,4 @@ sᴡᴇᴅɪsʜ ᴡᴏᴍᴀɴ
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31b2yffynub6sxiq65xwurwdgcuq&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=6c0200&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
-  <IMG src="https://64.media.tumblr.com/90a4ae99ca58fc1ff0f8c80286192343/3c52b18070abeafe-c1/s400x600/3992aa3bc127fab0dd13ae88b36d95fa11228d97.webp"/> 
+  <IMG src="https://64.media.tumblr.com/410779c88f33cd65b42054dbad26b073/33c117abf0a9271a-06/s540x810/cffe5dd7f761bbb56786d74283956e7977c013e9.pnj"/> 
