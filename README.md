@@ -15,6 +15,7 @@
 ![alt text](https://64.media.tumblr.com/d6f22efd2cfdf1b867636989d97f18ea/025130b0e4ae5c48-f8/s400x600/8614cdb8205ed6e96cd3c2fe2f5ba2875b01d578.webp)
 <div align="center">
 
+╰ ︶ ︶
 <b><sup><sub>
 ˚₊‧꒰ა 
 [ata](https://kottbullarcat.atabook.org)
@@ -24,6 +25,7 @@
 [str](https://rooftopsuicide.straw.page/)
 ໒꒱ ‧₊˚
 </sub></sup></b>
+︶ ︶╯
 <p align="center">
 
 <b>![alt text](https://64.media.tumblr.com/3daaf5fedea8468fb5f123bca821d6e9/5021ca3e33c9c459-62/s100x200/d5430ce9043e054df2f7d4e4dde98b83f46ee53c.pnj)<b>
