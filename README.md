@@ -30,11 +30,17 @@
 
 <b>![alt text](https://64.media.tumblr.com/3daaf5fedea8468fb5f123bca821d6e9/5021ca3e33c9c459-62/s100x200/d5430ce9043e054df2f7d4e4dde98b83f46ee53c.pnj)<b>
 
+<div align="center">
+
+<div align="center">
+
 <img src="https://64.media.tumblr.com/b72886491491b156e4a1f40b2e6bc8a4/c066fee8107fc650-70/s250x400/a7b8a08b67e99856627e98935fe516c6283e11a5.pnj" />
+
+<div align="center">
 
   <img src="https://64.media.tumblr.com/b405c3e20cdc3700dd14ccad64c53dfa/f111757e3e54ebba-02/s250x400/443f36ac055e99314ca2f516080c65de910641ef.webp" />
 
- 
+ <div align="center">
 
 <p align="center">
 
