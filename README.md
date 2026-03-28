@@ -21,7 +21,7 @@
 </sub></sup></b>
 <p align="center">
 
-<b>![alt text](https://64.media.tumblr.com/0742c22abbaa61245c5295a1de3101da/b51ac0c49b56aec9-a3/s100x200/37c1085d9547106375fc03c212fa17417143bfc7.gifv)<b>
+<b>![alt text](https://64.media.tumblr.com/3daaf5fedea8468fb5f123bca821d6e9/5021ca3e33c9c459-62/s100x200/d5430ce9043e054df2f7d4e4dde98b83f46ee53c.pnj)<b>
 
 <b>![alt text](https://neckdoll.zombie.jp/material/jou/line/line-yuushitetusen001.gif)<b>
  
