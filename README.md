@@ -23,9 +23,9 @@
 
 <b>![alt text](https://64.media.tumblr.com/3daaf5fedea8468fb5f123bca821d6e9/5021ca3e33c9c459-62/s100x200/d5430ce9043e054df2f7d4e4dde98b83f46ee53c.pnj)<b>
 
-<b>![alt text](https://neckdoll.zombie.jp/material/jou/line/line-yuushitetusen001.gif)<b>
+<b>![alt text](https://64.media.tumblr.com/18da65b81944f5522950a4ea6fe89015/025130b0e4ae5c48-33/s400x600/d94879125341befb395cd99b5ffce8ba8a446289.webp)<b>
  
-  <img src="https://neckdoll.zombie.jp/material/icon/icon-kamisori/icon-kamisori-1.gif" />
+  <img src="https://64.media.tumblr.com/e50b7037c356cf1eafdd8a25a11e807a/025130b0e4ae5c48-bd/s250x400/5b7ed09a0f99a3e16658b0da1c82163e2dd77701.webp" />
 </p>
 
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=kottbullarcat&color=2b0001)
