@@ -17,9 +17,7 @@
 
 <b><sup><sub>
 ˚₊‧꒰ა 
-[I'ᴠᴇ ᴀʟᴡᴀʏs ʟɪᴋᴇᴅ ʏᴏᴜ ᴛᴏᴏ,
-ʙᴜᴛ...
-ɴᴏᴛ ɪɴ ᴛʜᴀᴛ ᴡᴀʏ.](https://www.youtube.com/watch?v=__1dX0j18r8)
+[ata](https://www.youtube.com/watch?v=__1dX0j18r8)
 ໒꒱ ‧₊˚
 </sub></sup></b>
 <p align="center">
@@ -30,18 +28,13 @@
 
 <b>![alt text](https://64.media.tumblr.com/18da65b81944f5522950a4ea6fe89015/025130b0e4ae5c48-33/s400x600/d94879125341befb395cd99b5ffce8ba8a446289.webp)<b>
  
-  <img src="https://64.media.tumblr.com/e50b7037c356cf1eafdd8a25a11e807a/025130b0e4ae5c48-bd/s250x400/5b7ed09a0f99a3e16658b0da1c82163e2dd77701.webp" />
-</p>
-
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=kottbullarcat&color=6a4650)
+  <img src="https://64.media.tumblr.com/b405c3e20cdc3700dd14ccad64c53dfa/f111757e3e54ebba-02/s250x400/443f36ac055e99314ca2f516080c65de910641ef.webp" />
 
 <p align="center">
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31b2yffynub6sxiq65xwurwdgcuq&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=6c0200&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
- 
-  <img src="https://64.media.tumblr.com/b405c3e20cdc3700dd14ccad64c53dfa/f111757e3e54ebba-02/s250x400/443f36ac055e99314ca2f516080c65de910641ef.webp" />
 
-
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=kottbullarcat&color=6a4650)
   
 </p>
 
