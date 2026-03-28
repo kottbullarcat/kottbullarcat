@@ -17,7 +17,11 @@
 
 <b><sup><sub>
 ˚₊‧꒰ა 
-[ata](kottbullarcat.atabook.org)
+[ata](https://kottbullarcat.atabook.org)
+•
+[prn](https://kottbullarcat.atabook.org)
+•
+[str](https://kottbullarcat.atabook.org)
 ໒꒱ ‧₊˚
 </sub></sup></b>
 <p align="center">
