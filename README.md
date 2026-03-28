@@ -3,20 +3,21 @@
 
 <div align="center">
 
-<b>![alt text](https://neckdoll.zombie.jp/material/line/tsuta2/line-tsuta01.gif)<b>
+<b>![alt text](https://64.media.tumblr.com/06caba31e5ed224a88613cebd29886ff/158e7d8315ff7140-19/s2048x3072/63493d6be578139ee10b37a1cdf19975a9ad878b.webp)<b>
 
 
 <div align="center">
 
 
-![alt text](https://media1.tenor.com/m/1qx9hu9mJh0AAAAC/cry-of-fear-cof.gif)
+![alt text](https://64.media.tumblr.com/d6f22efd2cfdf1b867636989d97f18ea/025130b0e4ae5c48-f8/s400x600/8614cdb8205ed6e96cd3c2fe2f5ba2875b01d578.webp)
 <div align="center">
 
 <b><sup><sub>
-I'ᴠᴇ ᴀʟᴡᴀʏs ʟɪᴋᴇᴅ ʏᴏᴜ ᴛᴏᴏ,
+˚₊‧꒰ა 
+[I'ᴠᴇ ᴀʟᴡᴀʏs ʟɪᴋᴇᴅ ʏᴏᴜ ᴛᴏᴏ,
 ʙᴜᴛ...
-ɴᴏᴛ ɪɴ ᴛʜᴀᴛ ᴡᴀʏ.
- ( • ᴖ • ｡)
+ɴᴏᴛ ɪɴ ᴛʜᴀᴛ ᴡᴀʏ.](https://www.youtube.com/watch?v=__1dX0j18r8)
+໒꒱ ‧₊˚
 </sub></sup></b>
 <p align="center">
 
