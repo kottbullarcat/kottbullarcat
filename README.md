@@ -19,9 +19,9 @@
 ˚₊‧꒰ა 
 [ata](https://kottbullarcat.atabook.org)
 •
-[prn](https://kottbullarcat.atabook.org)
+[prn](https://pronouns.cc/@kottykitty)
 •
-[str](https://kottbullarcat.atabook.org)
+[str](https://rooftopsuicide.straw.page/)
 ໒꒱ ‧₊˚
 </sub></sup></b>
 <p align="center">
