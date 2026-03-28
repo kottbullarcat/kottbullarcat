@@ -32,9 +32,9 @@
 
 <img src="https://64.media.tumblr.com/b72886491491b156e4a1f40b2e6bc8a4/c066fee8107fc650-70/s250x400/a7b8a08b67e99856627e98935fe516c6283e11a5.pnj" />
 
-<b>![alt text](https://64.media.tumblr.com/18da65b81944f5522950a4ea6fe89015/025130b0e4ae5c48-33/s400x600/d94879125341befb395cd99b5ffce8ba8a446289.webp)<b>
- 
   <img src="https://64.media.tumblr.com/b405c3e20cdc3700dd14ccad64c53dfa/f111757e3e54ebba-02/s250x400/443f36ac055e99314ca2f516080c65de910641ef.webp" />
+
+ 
 
 <p align="center">
 
