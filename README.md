@@ -17,7 +17,7 @@
 
 <b><sup><sub>
 ˚₊‧꒰ა 
-[ata](https://www.youtube.com/watch?v=__1dX0j18r8)
+[ata](kottbullarcat.atabook.org)
 ໒꒱ ‧₊˚
 </sub></sup></b>
 <p align="center">
