@@ -19,11 +19,11 @@
 ╰ ︶ ︶
 <b><sup><sub>
 ˚₊‧꒰ა 
-[ᵃᵗᵃ](https://kottbullarcat.atabook.org)
+[ᴀᴛᴀ](https://kottbullarcat.atabook.org)
 •
-[ᵇᶦᵏᵉ](https://www.youtube.com/watch?v=Fc81u8EoXCM)
+[ʙɪᴋᴇ](https://www.youtube.com/watch?v=Fc81u8EoXCM)
 •
-[ᵍᵘⁿˢˡᵒˡ](https://guns.lol/intestinepain)
+[ɢᴜɴsʟᴏʟ](https://guns.lol/intestinepain)
 ໒꒱ ‧₊˚
 </sub></sup></b>
 ︶ ︶╯
