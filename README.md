@@ -19,11 +19,11 @@
 ╰ ︶ ︶
 <b><sup><sub>
 ˚₊‧꒰ა 
-[ata](https://kottbullarcat.atabook.org)
+[ᵃᵗᵃ](https://kottbullarcat.atabook.org)
 •
-[prn](https://pronouns.cc/@kottykitty)
+[ᵇᶦᵏᵉ](https://www.youtube.com/watch?v=Fc81u8EoXCM)
 •
-[str](https://rooftopsuicide.straw.page/)
+[ᵍᵘⁿˢˡᵒˡ](https://guns.lol/intestinepain)
 ໒꒱ ‧₊˚
 </sub></sup></b>
 ︶ ︶╯
