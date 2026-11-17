@@ -11,7 +11,7 @@
 <div align="center">
 
 
-![](https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExZHl5YmVtNW01bWczYjVoZDByb2o3eTlyZTEzeHBsdnN6aGh6M2NsOSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/s6us8RRuzmUJQm9v3w/giphy.gif)
+![](https://raw.githubusercontent.com/kottbullarcat/kottbullarcat/refs/heads/main/ezgif-27922102eace9250%20(1)%20(1)_edited.gif)
 
 
 <div align="center">
