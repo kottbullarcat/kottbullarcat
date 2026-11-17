@@ -3,15 +3,13 @@
 
 <div align="center">
 
+![](https://komarev.com/ghpvc/?username=kottbullarcat&color=000000)
 
-
-<b>![alt text](https://i.postimg.cc/SNMfJvQR/IMG-9340.png)<b>
+<b>![alt text](https://file.garden/ZlTATDBYblwbIgU2/IMG_5127.gif)<b>
 
 
 <div align="center">
 
-
-<img src="https://files.catbox.moe/8kebfb.gif" />
 
 ![alt text](https://64.media.tumblr.com/8f5ed0b57c2993a37582e2f3bd198426/03df7218a8df160b-7b/s1280x1920/9e5aaa920ea2606c6e83284625287a9887b679f2.pnj)
 <div align="center">
