@@ -35,7 +35,7 @@
 
 <div align="center">
 
-<img src="https://i.postimg.cc/Y0Zb58by/ddmegg7-527c5737-3669-4665-a89c-758b2d9a8455.gif" />
+<img src="https://64.media.tumblr.com/c5f456ea0486a5027f5a61fce13b3c16/d78e8ce8f952cb5f-19/s400x600/de8300ad3014767567cbf421fd2e3a2165fceb0c.pnj" />
 
 <div align="center">
 
