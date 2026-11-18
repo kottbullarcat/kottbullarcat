@@ -21,7 +21,7 @@
 ˚₊‧꒰ა 
 [𝖆𝖙𝖆](https://kottbullarcat.atabook.org)
 •
-[𝖗𝖊𝖓𝖙𝖗𝖞](https://www.youtube.com/watch?v=Fc81u8EoXCM)
+[𝖗𝖊𝖓𝖙𝖗𝖞](https://rentry.co/bloodywoundsrotting)
 •
 [𝔰𝔬𝔠𝔦𝔞𝔩𝔰](https://guns.lol/intestinepain)
 ໒꒱ ‧₊˚
